@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bereketalemnew
+- 👀 I’m interested in to participate in any project
+- 🌱 I’m currently learning in electrical and computer engineering
+- 
